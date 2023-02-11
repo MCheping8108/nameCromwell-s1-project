@@ -1,1 +1,2 @@
-# nameCromwell-s1-project
+# “尘封的记忆”第一季剧情梳理
+由群友wodemc进行梳理
